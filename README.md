@@ -1,0 +1,1 @@
+#startChart Amanbay Yertayev
